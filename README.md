@@ -1,4 +1,4 @@
-![GitHub profile](https://github.com/user-attachments/assets/d227e4d9-6e27-43d4-9e52-e1f5782db022)
+![githubprofileAsset 3](https://github.com/user-attachments/assets/6366b1d3-f8b1-4d16-ba15-1e8754dfe14e)
 <h3 align="right">Connect with me:</h3>
 <p align="right">
 <a href="https://twitter.com/keshichidera" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="keshichidera" height="30" width="40" /></a>
