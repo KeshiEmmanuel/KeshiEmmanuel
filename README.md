@@ -1,4 +1,4 @@
-![githubprofile](https://github.com/user-attachments/assets/1d7539f6-f671-47dc-b6f9-85d0941a52a4)
+![githubprofile](https://github.com/user-attachments/assets/b185cf6f-f8be-403a-93a5-6f67bc04b3c4)
 
 <h3 align="right">Connect with me:</h3>
 <p align="right">
