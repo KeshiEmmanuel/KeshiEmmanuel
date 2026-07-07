@@ -1,4 +1,4 @@
-![githubprofile](https://github.com/user-attachments/assets/b185cf6f-f8be-403a-93a5-6f67bc04b3c4)
+Product Engineer, i love solving user-facing problems i soo so loove it
 
 <h3 align="right">Connect with me:</h3>
 <p align="right">
